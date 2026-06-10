@@ -1,3 +1,0 @@
-**Ngôn ngữ:** nói được 5 thứ (Anh, Đức, Nhật, Nga, Quan Thoại Tây Nam) + lắt nhắt vài thứ khác (Tây Ban Nha, Pháp, Séc, Ba Lan...) "mỗi thứ một tí", nhiều khi không nhớ từ vừa nói là ngôn ngữ gì.
-**Literacy**: biết bảng chữ cái + đánh vần + đọc chữ tiếng Anh nhưng đọc chậm, struggle nhưng luôn tự đọc không nhờ ai. 5 ngôn ngữ nói được nhưng không có nghĩa là đọc viết được cả 5.
-**Accent:** pha tạp, nghe vừa Anh vừa Nga Đức Pháp,. Khi cần thì controlled, bình thường lazy để slip ra. Trong giới nghe giọng là nhận ra Germz ngay - cố tình không để lại dấu vết mà lại tạo ra signature recognizable.
